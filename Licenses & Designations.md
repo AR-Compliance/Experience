@@ -8,8 +8,11 @@ Alex has extensive experience working in the financial services space and has ob
 CRD #: 5342777
 
 Series 7 - August 13, 2008
+
 Series 66 - October 7, 2008
+
 Series 9 & 10 - 2015
+
 Series 3 - February 18, 2016
 
 Renewed Series 7, 9 & 10 through the FINRA Maintaining Qualifications Program in September, 2023.
