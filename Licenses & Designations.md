@@ -26,8 +26,11 @@ Alex also holds the Certified Anti-Money Laundering Specialist designation (CAMS
 In addition to these licenses and designations, I have completed all of the available TRM Blockchain investigation certifications to be a blockchain investigation and compliance analyst.
 
 **TRM-CFC**    Crypto Fundamentals Certification
+
 **TRM-CI**     Certified Investigator
+
 **TRM-ACI**    Advanced Crypto Investigator
+
 **TRM-CCS**    Crypto Compliance Specialist
 
 
